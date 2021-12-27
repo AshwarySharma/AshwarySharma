@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @AshwarySharma
 - 👀 I’m interested in Coding and stuff
-- 🌱 I’m currently learning Dps Jankipuram
+- 🌱 I’m currently learning Web and App development
+- DM me on my discord if u want to make a website for you ;)
+- Discord: Random_Guy_1919#5886
 - - 📫 How to reach me - ashwarysharmadpsjnk.1400@gmail.com
 
 <!---
